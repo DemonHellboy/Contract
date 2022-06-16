@@ -1,0 +1,2 @@
+# Contract
+DemonHellboy $DHB-Learn&amp;Burn To Earn 💵 DemonHellboy ($DHB) is the Learn&amp;Burn-to-Earn Application combined with Auto-Staking &amp; Autobuyback Protocol with per 15 mins approach &amp; token rewards . DHB is a standard mobile technology application that integrates blockchain and cryptocurrency. DHB users can not only check their knowledge but also earn $DHB tokens by answers quizz.
